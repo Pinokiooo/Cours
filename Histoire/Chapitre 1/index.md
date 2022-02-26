@@ -1,4 +1,6 @@
-# Chapitre 1
+# Histoire - Chapitre 1
+Vous êtes ici : [Matières](../../) > [Histoire](../)
+
 
 France de l'ancien régime, à la veille de la révolution
 
