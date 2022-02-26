@@ -1,4 +1,5 @@
 ## Matières
+Vous êtes ici : Matières
 
-- [Histoire](./Histoire/)
-- [Géo](./Géo/)
+- [x] [Histoire](./Histoire/)
+- [ ] [Géo](./Géo/)
