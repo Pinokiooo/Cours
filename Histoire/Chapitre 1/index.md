@@ -235,3 +235,85 @@ Les villes fédéralistes sont écrasées par la convention.
 **La situation se stabilise en 1794**, révoltes intérieures ne menaces plus la république.
 
 **1794 :** Belgique : victoire de la ***bataille de Fleurus***
+
+**Problème à la convention :** Division au sein des montagnards à la convention. Ils vont former les *« indulgents »* (chef : Danton) ils sont pour l’arrêt de la Terreur
+
+Face à eux : *« Enragés »* (Robespierre)
+
+Danton et ses partisans vont être accusés et jugés de trahison et d’intelligence avec l’ennemi. Ils vont être exécutés. 
+
+**C’est désormais Robespierre qui domine la Convention.**
+
+En parallèle s’opère une **politique de déchristianisation**
+
+Robespierre souhaitant créer une nouvelle religion, installe le culte de l’être suprême
+
+Il est accusé de tyrannie, et abandonné par la plupart de la Convention. (Juillet 1794, Thermidor)
+
+Sa chute marque le retour au pouvoir des « Modérés » désormais c’est la **Convention Thermidorienne**
+
+Les révolutionnaires les plus radicaux sont réprimés. (Comme les sans-culottes, club des Jacobins) 
+
+En **1795 :** nouveau régime est mis en place, il s’agit du « Directoire » …
+
+#### 2. Le Directoire
+
+Il est un régime bourgeois (retour de la bourgeoisie) qui a besoin de calme, d’ordre, oligarchique.
+
+Retour du suffrage censitaire (payer pour participer)
+
+> Electeurs : élire les grands électeurs, qui a leurs tours vont élire deux conseils :
+> - **Conseil des anciens**
+> - **Conseil des 500**
+
+Les conseils élisent les **5 Directeurs**
+
+Répression des révolutionnaires radicaux (muscadins) 
+
+Directoire divise la dette par 3 : « banqueroute des 2/3 »
+
+La Prusse et l’Espagne se sont retirés de la guerre. Ils ont fait la paix avec la France. Qui s’allient avec la France. Elle crée des républiques sœurs (comme Batave) (des états ayant adoptés le modèle français). Mais qui sont en réalités des états satellites (soumis à la France).
+
+La France est en expansion territoriale avec la conquête des « Frontières naturelles » c’est-à-dire Belgique, rive gauche du Rhin, Savoie, Nice
+
+Principaux ennemis : **Autriche et grande bretagne.**
+
+De nombreux mouvements souhaitent la chute du Directoire. 
+
+Comme les révolutionnaires radicaux (Gracchus Babeuf). Veulent l’égalité, la majorité des français sont mis sur le côté, accusent le Directoire de trahir la révolution. Ils vont tenter de le renverser en 1796 lors de la conjuration des égaux. Babeuf sera capturé et guillotiné. (**Gauche**)
+
+Mais les royalistes vont aussi tenter de renverser le Directoire à Paris en 1795. L’insurrection royaliste du Vendémiaire 1795 est écrasée par Napoléon Bonaparte. (**Droite**)
+
+Il devient proche de Barras (le directeur). En **1796**, une mission lui est confiée : Diriger la campagne d’Italie …
+
+#### 3. L'ascension de Napoléon Bonaparte
+
+Une diversion en Italie pour que la France attaque l’Allemagne. NB est chargé de la diversion. L’attaque d’Allemagne est un échec mais la diversion est un succès. NB en 18 mois va écraser ttes les armées face à lui, il a cette capacité de se faire mouvoir facilement les armées. Il arrive jusqu’à Venise, et commence à toucher les alpes autrichiennes. L’Autriche demande la paix en 1797. C’est NB qui l’a signé : traité de Campo Formio. La France prend le contrôle de l’Italie du nord, elle devient la république cisalpine. Le drapeau Vert – Blanc – Rouge est créé (l’ancien drapeau italien). NB prend des souvenir (pillage) rapport 50M de livres + tableau œuvres d’art etc. 
+
+La popularité de NB ne cesse de croitre dès son retour en France mais pas par le Directeur. Il maitrise bien le 4e pouvoir (Presse) et il va l’utiliser pour faire de la propagande. 
+
+Pays des 2 terres : L’Egypte 
+
+La flotte française arrive a échouer le trajet de Nelson (chef britannique) et débarquent en Egypte 
+
+Mamelouks : maîtres de l’Egypte
+
+Au pied des pyramides : combat entre NB et les Mamelouks (bataille des pyramides)
+
+**1798 :** 2e coalisions entre Russe et GB. NB s’est fait attaquer par les britanniques, il s’enfui en Palestine pour s’en emparer. 
+
+Les tensions entre NB et le Directoire s’exaspères
+
+Certains bourgeois veulent la chute du Directoire
+
+Septembre 1799 : NB se rend au conseil des 500 
+
+Le frère de NB fait croire aux soldats de Bonaparte qu’il a été victime d’agression, ils envahissent le conseil des 500.
+
+**18 novembre 1799 :** Bonaparte avec l’aide de ses soldats renverse le Directoire, Il devient le chef du pays
+
+### III. La période Napoléonienne
+
+#### 1. L'ordre napoléonien en France
+
+Bonaparte estime que la révolution est terminée. Mais il réclame être son continuateur. Il instaure le Consulat **(1799 – 1804)**. Les pouvoirs sont officiellement séparés : Exécutif appartenant à trois consules (NB et deux autres mais inutiles). Mais en réalité il concentre tous les pouvoirs. Bonaparte entend à exercer un contrôle sur le pays et la population. La presse est surveillée et censurée. Tous les opposant 
